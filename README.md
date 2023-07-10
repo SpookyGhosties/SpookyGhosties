@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SpookyGhosties
+- 👀 I’m interested in anime
+- 🌱 I’m currently learning programming
+- 📫 Find me on reddit
